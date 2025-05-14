@@ -14,7 +14,7 @@
  
 <br>
  
-### Para contanta use esse e-amil!
+### Para contanta use esse e-mail!
  
 <div> 
  
